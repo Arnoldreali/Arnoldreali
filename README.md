@@ -1,5 +1,5 @@
 # 💫 About Me:
-💻Jr/Midlevel Developer<br>📱Front-End Developer<br><br>3 years experience<br><br>👨🏽‍💻Love technology<br>🤩I enjoy learning<br>🇲🇽🇺🇸
+💻Jr/Midlevel Developer<br>📱Front-End Developer<br>👨🏽‍🔬Jr/Midlevel Data Scientist<br>3 years experience<br><br>👨🏽‍💻Love technology<br>🤩I enjoy learning<br>🇲🇽🇺🇸
 
 
 ## 🌐 Socials:
